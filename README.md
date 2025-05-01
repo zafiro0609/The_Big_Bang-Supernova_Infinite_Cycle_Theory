@@ -52,4 +52,4 @@ This theory is **speculative** and in its early stages. It is not yet peer-revie
 ## Contact
 
 Kiara Grant  
-[LinkedIn](https://www.linkedin.com/in/kiara-grant-a91a48218?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app) | ORCID: [https://orcid.org/0009-0006-7315-386X]
+[LinkedIn](https://www.linkedin.com/in/kiara-grant-a91a48218?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app) | ORCID: [0009-0006-7315-386X]
